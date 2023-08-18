@@ -109,4 +109,4 @@ this Privacy Policy are effective when they are posted on this page.
 
 ## Contact Us
 If you have any questions about this Privacy Policy, please contact us:
-- By email: tameralmurshidi@gmail.com
+- By email: tamer.almurshidi@gmail.com
